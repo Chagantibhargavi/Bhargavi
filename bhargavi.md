@@ -1,5 +1,5 @@
 # My Database Assignment
-## Interduction
+## Introduction
    My self Bhargavi Chaganti.i am from india,i was completed my masters MBA with HR specializtion.
    I have one year of experiance as hr talent acquisition at spanidea systems.
    My hobbies is painting and playing cricket 
